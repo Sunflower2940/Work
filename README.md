@@ -1,5 +1,4 @@
 # Work
-A standard study.
 
 ⭕ ❕ ⭕ ❕ ❌
 
